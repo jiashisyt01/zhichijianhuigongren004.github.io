@@ -68,13 +68,13 @@ title: 左翼青年审讯问答录（一） | 声援佳士建会工人到底错�
 
 ★网址★
 
-[https://zhichijianhuigongren01.github.io/archive/](https://zhichijianhuigongren01.github.io/archive/)
+[https://zhichijianhuigongren004.github.io/archive/](https://zhichijianhuigongren004.github.io/archive/)
 
 为相关消息的官方发布网址，请大家收藏，经常浏览，积极转发！推荐大家翻墙！
 
 ★若此网址被封，请转移至：★
 
-[https://zhichijianhuigongren02.github.io/archive/](https://zhichijianhuigongren02.github.io/archive/)
+[https://zhichijianhuigongren005.github.io/archive/](https://zhichijianhuigongren005.github.io/archive/)
 
-网址规律：数字更换为01、02、03...以此类推！
+网址规律：数字更换为004、005、006...以此类推！
 请为营救所有工人同胞转发！
