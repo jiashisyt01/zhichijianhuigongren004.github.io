@@ -2,7 +2,7 @@
 published: true
 layout: post
 tags:
-  - 评论文章
+  - 声援团
 comments: true
 title: 究竟是合法还是违法——佳士科技和坪山劳动部门再揭底
 ---
